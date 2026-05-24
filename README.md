@@ -1,0 +1,1 @@
+my_b0t got an update that make my_b0t can do a classification between plant and tree<img width="477" height="329" alt="Screenshot 2026-05-22 213534" src="https://github.com/user-attachments/assets/338ff167-5f7c-49f1-9cbd-874bc6347cc5" />
